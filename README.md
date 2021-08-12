@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @namohkwan
+- 👀 I’m interested in interesting stuff
+- 🌱 I’m currently learning almost everything I think its interesting
+- 💞️ I’m looking to collaborate on doing interesting stuff
+- 📫 Reach me with kwannamoh@gmail.com
